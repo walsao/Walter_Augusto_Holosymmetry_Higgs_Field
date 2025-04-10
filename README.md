@@ -2,7 +2,7 @@
 Holosymmetry reinterpretation of the Higgs field: breathing tension density shaping mass and substance.
 
 Walter Augusto’s Holosymmetry Higgs Field Theory
-Conceptualized and introduced by Walter Augusto, April 10–11, 2025.
+Conceptualized and introduced by Walter Augusto, April 10, 2025.
 
 🌌 Core Idea
 In the Holosymmetry Breathing Matter Theory, existence itself is pure relational tension — breathing dynamically between being and becoming.
