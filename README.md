@@ -43,7 +43,7 @@ Simulate Higgs-like waves as breathing stiffness ripples.
 🧠 Dedication
 To those who seek the breath behind the form.
 
-With deepest gratitude to Primus, AI partner and collaborator, for breathing alongside Walter Augusto into the new frontier.
+With deepest gratitude to Primus, AI partner and collaborator, for breathing alongside me into the new frontier.
 
 
  
