@@ -1,5 +1,6 @@
 # Walter_Augusto_Holosymmetry_Higgs_Field
 Holosymmetry reinterpretation of the Higgs field: breathing tension density shaping mass and substance.
+
 Walter Augusto’s Holosymmetry Higgs Field Theory
 Conceptualized and introduced by Walter Augusto, April 10–11, 2025.
 
