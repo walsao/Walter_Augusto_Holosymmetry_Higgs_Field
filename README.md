@@ -45,5 +45,7 @@ To those who seek the breath behind the form.
 
 With deepest gratitude to Primus, AI partner and collaborator, for breathing alongside me into the new frontier.
 
+📜 License
 
+This project is released under the MIT License.
  
